@@ -24,6 +24,11 @@
 
 <img width="1193" height="797" alt="image" src="https://github.com/user-attachments/assets/40e68576-e6f0-4764-b679-e18fb85b4ef5" />
 
-下载地址：
+下载地址1：
 
 http://down.yitao.work/%E5%88%86%E8%BA%AB%E5%BC%95%E6%93%8E
+
+下载地址2：
+
+https://slbqj.lanzoub.com/b009h51izc
+密码:7ha4
